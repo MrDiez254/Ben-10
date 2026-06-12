@@ -14,4 +14,3 @@
 
 ## How to Reach Me
 - Email: [Kimanibenny012@gmail.com]
-- LinkedIn: [your LinkedIn profile link]
